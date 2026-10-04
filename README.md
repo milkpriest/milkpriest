@@ -1,4 +1,4 @@
-## craigory . charlie
+## craigory ⁄ ᶜʰᵃʳˡⁱᵉ ᵒʳ ˢᵃᵐ
 he . normally w my lil buddy <):-) T4roRu
 
 <img width="200" height="200" alt="Untitled481_20261004025948" src="https://github.com/user-attachments/assets/7ac57be3-1648-443f-a283-46a0b8ecfe46" />
