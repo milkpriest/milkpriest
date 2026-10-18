@@ -1,5 +1,5 @@
 ## craigory . ᵒʳ ᶜʰᵃʳˡⁱᵉ ˜ ˢᵃᵐ
-he . normally w my bud @T4roRu :-) . .
+he . normally w my bud @T4roRu :-)  .  
 *i selectively chat, dont be afraid*
 
 <img width="200" height="200" alt="Untitled481_20261004025948" src="https://github.com/user-attachments/assets/7ac57be3-1648-443f-a283-46a0b8ecfe46" />
