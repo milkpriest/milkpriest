@@ -1,5 +1,6 @@
 ## craigory . ᵒʳ ᶜʰᵃʳˡⁱᵉ ˜ ˢᵃᵐ
 he . normally w my bud @T4roRu <):-) .
+i selectively chat with others, but dont be afraid to talk to me
 
 <img width="200" height="200" alt="Untitled481_20261004025948" src="https://github.com/user-attachments/assets/7ac57be3-1648-443f-a283-46a0b8ecfe46" />
 <img width="200" height="200" alt="Untitled481_20261004030448" src="https://github.com/user-attachments/assets/50474f47-318d-4364-b2f6-820f2bd86348" />
