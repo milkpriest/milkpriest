@@ -5,6 +5,6 @@ i selective chat
 <img width="200" height="200" alt="Untitled481_20261004025948" src="https://github.com/user-attachments/assets/7ac57be3-1648-443f-a283-46a0b8ecfe46" />
 <img width="200" height="200" alt="Untitled481_20261004030448" src="https://github.com/user-attachments/assets/50474f47-318d-4364-b2f6-820f2bd86348" />
 <img width="200" height="200" alt="Untitled481_20261004030747" src="https://github.com/user-attachments/assets/5a4b9a52-0e4f-4902-bbe3-2b163aca3fff" />
-<img width="200" height="640" alt="image" src="https://github.com/user-attachments/assets/ebc1c571-bcd4-48ec-b5ac-b8156e19f899" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ebc1c571-bcd4-48ec-b5ac-b8156e19f899" />
 
 2018 craig fan. fuh doubles
